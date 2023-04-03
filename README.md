@@ -5,4 +5,6 @@ Se possível, levar em cartório para reconhecimento de firma de ambas as partes
 
 Mesmo que você não peça para o cliente reconhecer firma, o contrato ainda é válido para recorrer judicialmente e tentar recuperar o pagamento atrasado.
 
+*Arquivo abaixo recebeu algumas correções de gramática em 03/04/2023
+
 Link para download: https://1drv.ms/w/s!AuieGz2hTCkmgoZAXBpskpy06lDDdA?e=rRlDYx
